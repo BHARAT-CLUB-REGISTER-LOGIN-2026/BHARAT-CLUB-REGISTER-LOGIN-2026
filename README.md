@@ -4,7 +4,7 @@
 
 ---
 
-[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://www.goagames.bio/#/register?invitationCode=254748930432)
+[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://yaarwin.app/#/register?invitationCode=37276171894)
 
 ---
 
