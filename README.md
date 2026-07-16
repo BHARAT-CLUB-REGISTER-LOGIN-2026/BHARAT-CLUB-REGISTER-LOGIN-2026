@@ -4,7 +4,7 @@
 
 ---
 
-[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://damanworld.org/#/register?invitationCode=8521721095220)
+[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://www.goagames.bio/#/register?invitationCode=254748930432)
 
 ---
 
