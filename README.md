@@ -4,7 +4,7 @@
 
 ---
 
-[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://www.jaiclub28.com/#/register?invitationCode=477476410200)
+[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://www.bharatclub.cc/#/register?invitationCode=646426766575)
 
 ---
 
