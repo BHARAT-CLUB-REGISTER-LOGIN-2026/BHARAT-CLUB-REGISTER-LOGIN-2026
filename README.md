@@ -4,7 +4,7 @@
 
 ---
 
-[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://www.bharatclub.cc/#/register?invitationCode=646426766575)
+[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://okwinslots4.com/#/register?invitationCode=2122415602397)
 
 ---
 
