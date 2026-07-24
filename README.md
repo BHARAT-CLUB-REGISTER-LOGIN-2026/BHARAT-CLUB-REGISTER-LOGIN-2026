@@ -4,7 +4,7 @@
 
 ---
 
-[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://www.bg678m.com/#/pages/login/register?invitationCode=5812586561&regSourceFlag=1)
+[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)]()
 
 ---
 
