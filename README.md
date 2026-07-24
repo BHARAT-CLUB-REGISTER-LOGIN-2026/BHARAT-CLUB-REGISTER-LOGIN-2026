@@ -4,7 +4,7 @@
 
 ---
 
-[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)]()
+[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://www.bg678m.com/#/pages/login/register?invitationCode=5812586561&regSourceFlag=1)
 
 ---
 
@@ -34,6 +34,15 @@
 ```
 846612564037
 ```
+<a href="https://t.me/+ZogJFA8224JmYTFl"
+   class="telegram-float"
+   target="_blank"
+   rel="noopener noreferrer"
+   aria-label="Join Telegram">
+    <img src="https://damanapk.download/wp-content/uploads/2026/07/images-3.jpeg"
+         alt="Telegram">
+
+
 
 **Bharat Club Invite Code 846612564037** use karne par yeh fayde milte hain:
 
