@@ -4,7 +4,7 @@
 
 ---
 
-[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)]()
+[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://www.v3gameb.com/#/pages/login/register?invitationCode=3737691269&regSourceFlag=1)
 
 ---
 
