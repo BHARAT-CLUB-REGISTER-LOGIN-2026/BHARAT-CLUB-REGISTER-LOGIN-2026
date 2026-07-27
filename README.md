@@ -1,10 +1,11 @@
+[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://www.jaiclub33.com/#/register?invitationCode=778356410200)
+
 # 🏆 Bharat Club Login & Register 2026 – Bharat Club Invite Code 846612564037
 
 > **Bharat Club – India's #1 Colour Prediction & Online Gaming Platform | Bharat Club Official Guide 2026**
 
 ---
 
-[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://www.jaiclub33.com/#/register?invitationCode=778356410200)
 
 ---
 
