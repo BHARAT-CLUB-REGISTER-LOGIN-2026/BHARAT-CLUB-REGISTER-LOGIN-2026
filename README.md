@@ -1,4 +1,4 @@
-[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://yaarwin.app/#/register?invitationCode=37276171894)
+[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://linkly.link/2qMtL)
 
 # 🏆 Bharat Club Login & Register 2026 – Bharat Club Invite Code 846612564037
 
