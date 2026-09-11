@@ -1,4 +1,4 @@
-[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://www.DamanClub.win/#/register?invitationCode=8521721095220)
+[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://www.damansuperstar1.com/#/register?invitationCode=8521721095220)
 
 # 🏆 Bharat Club Login & Register 2026 – Bharat Club Invite Code 846612564037
 
