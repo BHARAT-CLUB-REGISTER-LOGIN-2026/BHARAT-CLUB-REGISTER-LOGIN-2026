@@ -305,6 +305,31 @@ OTP aayega — enter karo aur **Bharat Club** account turant active ho jaayega!
 
 ---
 
+<div class="neelwin-info">
+  <h2>Explore NeelWin – Platform Guide</h2>
+
+  <p>
+    Looking for information about NeelWin? Explore our
+    <a href="https://neelwin.games/"
+       title="NeelWin Official Website Guide">
+      NeelWin platform guide
+    </a>
+    to learn more about its features, account access, and
+    registration process.
+  </p>
+
+  <p>
+    New users can read the available instructions before
+    getting started. Visit the
+    <a href="https://neelwin.games/"
+       title="Learn More About NeelWin">
+      NeelWin website
+    </a>
+    for additional platform information and helpful guides.
+  </p>
+</div>
+
+
 <div align="center">
 
 ### 🏆 Bharat Club – India Ka #1 Gaming Platform
