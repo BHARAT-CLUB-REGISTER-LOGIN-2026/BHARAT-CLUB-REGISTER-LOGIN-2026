@@ -1,4 +1,4 @@
-[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://neelwin77.com/?code=509529453947)
+[![Bharat Club Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)]()
 
 # 🏆 Bharat Club Login & Register 2026 – Bharat Club Invite Code 846612564037
 
